@@ -1,1 +1,0 @@
-![alıştırma](https://user-images.githubusercontent.com/57774389/164724984-9d52abf6-09b1-4d5d-88a2-a4c5fe73c489.png)
